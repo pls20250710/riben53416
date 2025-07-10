@@ -16,4 +16,4 @@ SEO优化依然是流量增长的关键，合理的关键词使用和高质量�
 
 未来，结合大数据和人工智能技术，成人视频网站将在内容推荐、用户安全和服务个性化方面取得更大突破。
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link]( https://github.com/pls20250710/riben53416 ）</span>
